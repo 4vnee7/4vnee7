@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @4vnee7 ~Avneet Singh
+- 👋🏻 Hi, I’m @4vnee7 ~Avneet Singh
 - 💻 I am a computer science enthusiast:D
 - 👾 I’m currently learning to be better than yesterday and also Full Stack Developmet. 
 - 📫 you can reach me on 4vne3t@gmail.com
